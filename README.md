@@ -7,4 +7,4 @@ https://www.dropbox.com/scl/fi/9qz6wakefzftbodpiga9s/MyPass1.0.zip?rlkey=uyk1y8d
 To get the source code password, please reach out to me via:
 LinkedIn: https://www.linkedin.com/in/mohammed-aamir-b47825107/
 Email: amazingaamir96@gmail.com
-Insta: @amazing.aamir
+Instagram: @amazing.aamir
